@@ -11,16 +11,16 @@ Atualmente estou aprendendo 🇧🇷: Estou aprendendo a programar e a dublar |
 I’m currently learning 🇺🇲: I'm learning to program and dub
 
 I’m looking to collaborate on 🇺🇲: nothing for now
-Estou procurando colaborar em 🇧🇷: Nada por agora
+| Estou procurando colaborar em 🇧🇷: Nada por agora
 
-How to reach me 🇺🇲:
-Como chegar até mim 🇧🇷: 
+How to reach me 🇺🇲: You can reach me through my discord: hiroshi_0ficial
+| Como chegar até mim 🇧🇷: vc pode chegar ate mim atravez do meu discord: hiroshi_0ficial
 
-Pronouns 🇧🇷: 
-pronomes 🇺🇲: 
+Pronouns 🇧🇷: ele/dele
+| pronomes 🇺🇲: he/him
 
-Fun fact 🇺🇲:
-coriosidades 🇧🇷:
+Fun fact 🇺🇲: so far none 
+| coriosidades 🇧🇷: ate agora nenhuma
 
 
 ∘∘∘ ─ ────‒→ ◉ ←‒──── ─ ∘∘∘
