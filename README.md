@@ -4,6 +4,7 @@ Welcome to my profile 🇺🇲
 ∘∘∘ ─ ────‒→ ◉ ←‒──── ─ 
 
 
+
 tenho interece em 🇧🇷: Programação e dublagem
 | I’m interested in 🇺🇲: programming and dubbing
 
@@ -12,6 +13,10 @@ I’m currently learning 🇺🇲: I'm learning to program and dub
 
 I’m looking to collaborate on 🇺🇲: nothing for now
 | Estou procurando colaborar em 🇧🇷: Nada por agora
+
+
+![image](https://github.com/user-attachments/assets/68ce9c53-e55e-46d0-aed0-1a37d2ab018e)
+
 
 How to reach me 🇺🇲: You can reach me through my discord: hiroshi_0ficial
 | Como chegar até mim 🇧🇷: vc pode chegar ate mim atravez do meu discord: hiroshi_0ficial
